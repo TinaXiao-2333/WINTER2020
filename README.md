@@ -59,3 +59,11 @@ Josh Park (12:30pm)
 Junghwan Park (12:30pm)   
 Krystal Xu (12:30pm)  
 
+#### Team 7: Star Women
+Yixin Xu (3:30pm)
+Yijing Xiao (3:30pm)
+Amanda Njauw (3:30pm)
+Fanru Zhao (3:30pm)
+Qing Chen (3:30pm)
+Yuexiang Luo (3:30pm)
+
